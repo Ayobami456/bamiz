@@ -1,1 +1,1 @@
-# bamiz
+# bamizz
